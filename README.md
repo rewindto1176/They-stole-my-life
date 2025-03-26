@@ -1,1 +1,1 @@
-# They-stole-my-life
+#for a better new one plsitive vibes and only good people all showdiws that follow are gone all light of beutiful energy my way and let the money come to me and my eyes work as good as new and let the past  e the past and only good bealthy future for my beutiful daughter and let my starlink and earth link always be connected to Joe so he can grow as a beutiful man that he is and let all my natives help me to a beutiful future and let all people love me and experience a awsome energy around me.
